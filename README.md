@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @fifichad 
+- 👀 I’m interested in football <3, gym, jebanie pb
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate z twoja matka
+- 📫 How to reach me ... you cant reach me cuz im HIGHEST IN DA ROOM
